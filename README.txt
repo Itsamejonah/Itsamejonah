@@ -2,6 +2,5 @@
 - 👀 I’m interested in Minecraft Youtube (etc)
 - 🌱 I’m currently learning French!
 - 💞️ I’m looking to collaborate on Gandi.ide.
-- 📫 How to reach me ...
 - 😄 A Joke: Knock Knock! (who's there?) Miss. (miss who?) Mistakes are easy to fix!
 - ⚡ Fun fact: C148's cat made the sounds for the ghast!
